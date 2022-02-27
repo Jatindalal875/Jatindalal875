@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# CURRENT OWNER OF [BROTHERHOOD COUNCIL](https://t.me//BROTHERHOOD_SUPPORT) .
+
+# WORKING ON THE BEST AI PROJECT [JOCASTA]() .
+
+# PLANNING TO CREATE AN SECURE SYSTEM FOR TELEGRAM BOTS SO ANYONE WHO IS INTERESTED CAN CONTACT [ME](https://t.me//GANGLAND_01) .
