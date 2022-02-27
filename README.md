@@ -35,7 +35,7 @@ Name = "JATIN DALAL"
 
 INSTAGRAM = ['BLACK_LORD_ON_FIRE':  '❣️']
 
-Country = "INDIA, HARYANA
+Country = "INDIA, HARYANA"
 ```
 
 #### 
