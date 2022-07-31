@@ -88,7 +88,7 @@ Here are some ideas to get you started:
 
 Name = "JATIN DALAL"
 
-INSTAGRAM = ['BLACK_LORD_ON_FIRE':  '❣️']
+INSTAGRAM = ['JATIN_0_2':  '❣️']
 
 Country = "INDIA, HARYANA"
 ```
