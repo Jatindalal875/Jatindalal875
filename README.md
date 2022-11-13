@@ -94,8 +94,7 @@ Country = "INDIA, HARYANA"
 ```
 
 #### 
-- 😈WANT TO EARN ONLINE😈
-[center][url=https://freebitco.in/?r=50666861][b][size=15pt][color=red]Win Free Bitcoins every hour! - [/color][color=red]www.freebitco.in[/color=][/size][/b][/url][/center]
+- 😈WANT TO EARN ONLINE😈 :- [DM ME](https://t.me/hunter_is_back)
 
 <!--
 
