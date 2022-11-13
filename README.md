@@ -95,8 +95,7 @@ Country = "INDIA, HARYANA"
 
 #### 
 - 😈WANT TO EARN ONLINE😈
-<a href='https://unmined.io/?referral=188872' target='_blank'><img src='https://unmined.io/assets/member/banners/728.gif/></a>
-
+<a href='https://unmined.io/?referral=188872' target='_blank'><img src='https://unmined.io/assets/member/banners/1250.gif/></a>
 
 <!--
 
